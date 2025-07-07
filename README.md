@@ -37,9 +37,9 @@ I’m always down to connect:
 🔬 [Research Blog](https://adilsukumar.blogspot.com)  
 💼 [Linkedin](https://linkedin.com/in/adilsukumar)  
 📸 [Instagram](https://instagram.com/adilsukumar)  
-✉️ adilsukumar24@gmail.com  
+✉️ [E-mail] (adilsukumar24@gmail.com)  
 💬 [Discord](https://discord.com/users/724921290041065493)
 
 ---
 
-> not everything i do makes sense — but it usually makes a story.
+> Not everything i do makes sense — but it usually makes a story.
