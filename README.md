@@ -37,7 +37,7 @@ I’m always down to connect:
 🔬 [Research Blog](https://adilsukumar.blogspot.com)  
 💼 [Linkedin](https://linkedin.com/in/adilsukumar)  
 📸 [Instagram](https://instagram.com/adilsukumar)  
-✉️ [E-mail] (adilsukumar24@gmail.com)  
+✉️ adilsukumar24@gmail.com  
 💬 [Discord](https://discord.com/users/724921290041065493)
 
 ---
