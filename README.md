@@ -1,4 +1,4 @@
-## Hey, I’m Adil 👋
+## Hey, I’m Adil Sukumar👋
 
 I get curious about stuff and accidentally end up deep in projects.  
 Sometimes it's building a robot, sometimes it's learning something random just because i *had* to know how it works.
